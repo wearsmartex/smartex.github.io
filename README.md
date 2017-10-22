@@ -1,1 +1,1 @@
-# smartex.github.io
+# wearsmartex.github.io
