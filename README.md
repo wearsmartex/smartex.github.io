@@ -1,1 +1,0 @@
-# wearsmartex.github.io
